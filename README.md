@@ -6,4 +6,4 @@
 - gosto do Van Dijk 🇳🇱
 - gosto de conversar ​🗨️​
 
-- ![](https://media.tenor.com/lv4r3Ds97bsAAAAC/neymar-jr.gif)
+ ![](https://media.tenor.com/lv4r3Ds97bsAAAAC/neymar-jr.gif)
