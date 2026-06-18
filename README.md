@@ -1,1 +1,5 @@
-# Olá meu nome é Paula Vadinho
+# Olá meu nome é JOÃO 
+
+ * Eu gosto de jogar futebol
+ * gosto de ouvir musica
+ * gosto de 
